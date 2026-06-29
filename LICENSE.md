@@ -1,4 +1,4 @@
-# 
+# Professional 30+ AI Projects at UQAC themes. Featuring explainable-AI and AI-ethics — optimized for maximum performance.
 
 
 
